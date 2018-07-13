@@ -1,1 +1,1 @@
-{\rtf1}
+hello, leo!!! welcome to the mini pro world!
